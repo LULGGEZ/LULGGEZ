@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LULGGEZ
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning making games
